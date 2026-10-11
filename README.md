@@ -218,4 +218,4 @@ Speccy Portable is the full free version with all features and updates included.
 Download Speccy Portable today and unlock the full potential of your computer's hardware analysis with a **safe download** and **all features included**!
 
 ---
-**Last updated:** 2026-10-11 08:31:35 UTC
+**Last updated:** 2026-10-11 15:27:59 UTC
